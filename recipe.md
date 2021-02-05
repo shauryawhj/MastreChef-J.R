@@ -1,0 +1,1 @@
+first we apply sauce on the base and aggg veges. then we apply chese and topings such as origina and chili flakes.Then we bake it till the chese melts .
